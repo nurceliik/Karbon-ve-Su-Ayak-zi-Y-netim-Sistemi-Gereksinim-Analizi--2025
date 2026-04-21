@@ -1,1 +1,1 @@
-# Karbon-ve-Su-Ayak-zi-Y-netim-Sistemi-Gereksinim-Analizi--2025
+# Karbon-ve-Su-Ayak-Izi-Yonetim-Sistemi-Gereksinim-Analizi--2025
