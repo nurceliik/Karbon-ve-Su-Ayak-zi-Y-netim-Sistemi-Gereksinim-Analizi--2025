@@ -1,0 +1,1 @@
+# Karbon-ve-Su-Ayak-zi-Y-netim-Sistemi-Gereksinim-Analizi--2025
